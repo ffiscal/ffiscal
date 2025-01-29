@@ -1,4 +1,4 @@
-<img scr="https://files.catbox.moe/dsgdrg.png">
+<img src="https://files.catbox.moe/dsgdrg.png">
 <p>
   whisper to int , i'm mostly offtab <br>
   i don't care about cuddles / hide , feel free <br>
