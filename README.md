@@ -1,4 +1,21 @@
 <p>
-<br> :⠀⠀ Extra info
-I'm generally okay with everything and everyone, I don't like drama at all! Please understand that sometimes I can be a little slow, if I ever say or do something wrong I'd like you guys to correct me, I won't be upset at all. I don't have a DNI & I block freely in case you bother me. C+H are more than ok! I'd love to make new friends. ^__^ I am NOT a proshipper. <br>
+<br> :⠀⠀ 強くなりたいならそうなりな　(そうなりなったらそうなりな)
+息していたいならそうなりな　(そうなりなったらそうなりな)
+咲いていたいならそうなりな　(そうなりなったらそうなりな)
+僕はいつかはこんな時間を　続けて生きてたいな
+
+愛してよって言うなら　愛したくないのさ　傷つきたくないなら　エチカーム飲むだけ
+
+シャイなりにも ハイになりたい 効いてる時間はそんなにない
+飲めば飲むほどに鈍って 色んな不安材料を焼却 創作意欲の脳部を刺激 メロディの渦が廻って来る
+意味の無いことを思いつくのにこれ合法！
+地球の自転の動きが まるで逆になるのさ 嫌いな奴の言葉も どうでも良くなるだけ
+１錠の奇跡は 生活の革命 このままじゃ駄目なら エチカーム飲むだけ
+
+エチカーム飲むだけ・・・
+
+愛してよって言うなら　愛したくないのさ　傷つきたくないなら　エチカーム飲むだけ
+君はまだ知らない 本当の宗教を 君の中にあるのさ 扉の鍵が見えないだけ
+
+エチカーム飲むだけ <br>
 </p>
